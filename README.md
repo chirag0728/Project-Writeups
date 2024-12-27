@@ -82,7 +82,7 @@ If you’d like to collaborate, share resources, or suggest challenges, feel fre
 
 ## 📫 Contact
 - **Email**: [chirag0728@gmail.com]
-- **LinkedIn**: [[Your LinkedIn Profile](https://www.linkedin.com/in/cdewan/)]
+- **LinkedIn**: [[LinkedIn Profile](https://www.linkedin.com/in/cdewan/)]
 
 ---
 
